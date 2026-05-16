@@ -1,4 +1,4 @@
-
+Enhance your Touch VPN experience with Touch VPN secure Client: tracker-blocker & ad-blocker, the #1 client. Includes tracker-blocker and ad-blocker for a safer and more private
 
 
 
